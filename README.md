@@ -1,4 +1,4 @@
-# Hostinger Coupon Codes 83% Off | March 2025
+# Hostinger Domain Coupon Code - 75% + 20% OFF
 
 Are you a student looking for an affordable hosting solution for your website? Or perhaps you’re looking for some great deals to renew your domain with Hostinger?
 
