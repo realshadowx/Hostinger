@@ -8,7 +8,7 @@ You're in the right place! In this article, we will walk you through the latest 
 
 ## 90% OFF Hostinger Domain Coupon Code
 
-Use the coupon code BPDOMAIN and enjoy up to 90% off when you register or transfer a domain with Hostinger. This offer is valid for a limited time and applies to popular domain extensions. Don’t miss this chance to grab your perfect domain at a huge discount. Do it now you modern internet explorers.
+Use the coupon code Q44SALMAN8OJ and enjoy up to 90% off when you register or transfer a domain with Hostinger. This offer is valid for a limited time and applies to popular domain extensions. Don’t miss this chance to grab your perfect domain at a huge discount. Do it now you modern internet explorers.
 
 [![423146407-151965aa-439b-4b21-b85a-bfdb0b362b56](https://github.com/user-attachments/assets/32bd8e30-dba7-423d-aba2-2f936df107e5)](https://hostinger.in/?REFERRALCODE=Q44SALMAN8OJ)
 
